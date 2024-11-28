@@ -84,7 +84,7 @@ Ce projet est en open source
 
 ## Contact
 
-Pour toute question ou suggestion, n'hésitez pas à contacter Ahmat à ahmatmhtlouky@gmail.com.
+Pour toute question ou suggestion, n'hésitez pas à me contacter à ahmadmeamar7@gmail.com
 
 ## Remerciements
 
